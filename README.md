@@ -1,1 +1,1 @@
-# mathsfunguthub.io
+# mathsfungithub.io
